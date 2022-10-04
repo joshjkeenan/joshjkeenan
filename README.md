@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @jxshuk
-- 🐦 twitter.com/joshkradio
+- 😄 Pronouns: he/him
+- 🐦 https://twitter.com/joshkradio
+- 📫 How to reach me: hello@jxsh.me
