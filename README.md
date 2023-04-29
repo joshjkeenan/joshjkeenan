@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jxshuk
+- 👋 Hi, I’m @joshjkeenan
 - 😄 Pronouns: he/him
-- 🐦 https://twitter.com/joshkradio
-- 📫 How to reach me: hello@jxsh.me
+- 🐦 https://twitter.com/joshjkeenan
+- 📫 How to reach me: joshjkeenanbiz@gmail.com
